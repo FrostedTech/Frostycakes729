@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Frostycakes729
+- 👋 Hi, I’m @JonPagliari
 - 👀 I’m interested in learning crypto and nft games.
 - 🌱 I’m currently learning Ivan on Tech blockchain certs.
 - 💞️ I’m looking to collaborate on intern work on blockchain knowledge and dev work. Or break into the crypto industry
